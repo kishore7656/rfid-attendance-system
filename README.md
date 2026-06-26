@@ -18,4 +18,4 @@
 - Semiconductor Workshop
 
 ## 📫 Contact
-- LinkedIn: (add your link later)
+- LinkedIn:www.linkedin.com/in/kishor-s-6814783a8
